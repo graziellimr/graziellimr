@@ -3,3 +3,4 @@
 ### 🏖️ 🍨 🌠 🦋
 ### você pode me encontrar aqui ➡️ grazielli.rocha@escola.pr.gov.br
 ### Instagram ➡️ graziellli.mr
+![image](https://github.com/graziellimr/graziellimr/assets/144032099/aa911a0c-360a-4ba8-b091-f743cdd65227)
